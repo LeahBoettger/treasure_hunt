@@ -41,5 +41,5 @@ XI.   Any man deserting the ship in battle or rewriting history on the
   above, so you get your fair share of the prize!
 
 Captain      : Leah   
-Quartermaster: NAME HERE  
+Quartermaster: Anna Ramisch  
 First mate   : SACHA BORS
